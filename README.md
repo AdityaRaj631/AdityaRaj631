@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @AdityaRaj631
-- 👀 I’m interested in Oversize Tips
+- 👋 Hi, I’m @Aditya Raj
+- 👀 I’m interested in Oversize Tits
 - 🌱 I’m currently learning Python
 - 💞️ I want to collaborate with bigboobs girls
 - 📫 How to reach me by killing your self.
