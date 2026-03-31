@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @Aditya Raj
-- 👀 I’m interested in Oversize Tits
-- 🌱 I’m currently learning Python
-- 💞️ I want to collaborate with bigboobs girls
-- 📫 How to reach me by killing your self.
+- 👋 Hi, I’m @Aditya
+- 👀 I’m interested in game designing
+- 🌱 I’m currently learning C/C++
+- 💞️ I want to collaborate with aspiring game developers.
 
 <!---
 AdityaRaj631/AdityaRaj631 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
